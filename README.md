@@ -1,1 +1,0 @@
-# ArtemGD011.net-Web-pages
